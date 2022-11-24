@@ -1,2 +1,2 @@
-# truman-3tri
+# turman-3tri
 terça feira das 9 horas as 10:40 hrs
